@@ -1,4 +1,4 @@
-^
+
 # Watu Izzu Mantasha Watu Zillu Mantasha: A Deep Dive into the Arabic Verses with Urdu and English Translations  
 
 In the realm of Islamic teachings, certain phrases and verses hold profound spiritual significance. Among these, **"Watu Izzu Mantasha Watu Zillu Mantasha"** stands out as a powerful expression of divine wisdom. This article will explore the meaning, context, and spiritual depth of these words, supported by Arabic verses, Urdu translations, and English explanations. Whether you're a seeker of knowledge or someone looking to deepen your understanding of Islamic teachings, this guide is designed to be SEO-friendly, engaging, and insightful.  
