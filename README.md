@@ -7,7 +7,7 @@ In the realm of Islamic teachings, certain phrases and verses hold profound spir
 
 ## Understanding "Watu Izzu Mantasha Watu Zillu Mantasha"  
 
-The phrase **"[Watu Izzu Mantasha Watu Zillu Mantasha](https://islamicdoor.com/watu-izzu-mantasha-watu-zillu-mantasha)** is derived from classical Arabic and carries deep spiritual connotations. It reflects the duality of human existence—honor and humility, strength and submission, and the balance between worldly life and the hereafter.  
+The phrase **"Watu Izzu Mantasha Watu Zillu Mantasha** is derived from classical Arabic and carries deep spiritual connotations. It reflects the duality of human existence—honor and humility, strength and submission, and the balance between worldly life and the hereafter.  
 
 To fully grasp its meaning, we will break it down word by word and explore its relevance in Islamic teachings.  
 
