@@ -67,6 +67,9 @@ This verse reinforces the idea that true honor lies in piety and righteousness, 
 
 ---
 
+You can visit [surah kausar](https://islamicdoor.com/surah-kausar-in-english/) too see this blogpost
+
+---
 ## Spiritual Lessons from "Watu Izzu Mantasha Watu Zillu Mantasha"  
 
 1. **Honor Through Faith:** True honor is achieved through unwavering faith and devotion to Allah.  
