@@ -93,4 +93,4 @@ You can visit [surah kausar](https://islamicdoor.com/surah-kausar-in-english/) t
 
 ## Conclusion  
 
-The phrase **"Watu Izzu Mantasha Watu Zillu Mantasha"** encapsulates the essence of Islamic teachings—honor through faith and humility through submission. By understanding and embodying these principles, one can lead a life that is both dignified and spiritually fulfilling.
+The phrase [**"Watu Izzu Mantasha Watu Zillu Mantasha"**](https://dribbble.com/shots/26112072-watu-izzu-mantasha-watu-zillu-mantasha) encapsulates the essence of Islamic teachings—honor through faith and humility through submission. By understanding and embodying these principles, one can lead a life that is both dignified and spiritually fulfilling.
